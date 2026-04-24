@@ -1,1 +1,1 @@
-coisas do feature 2
+Lorem, ipsum dolor sit amet consectetur adipisicing elit. Commodi, ipsam, expedita assumenda delectus odio laborum nisi inventore similique saepe nam corporis eos quis ratione aut odit facilis laudantium totam nemo.
